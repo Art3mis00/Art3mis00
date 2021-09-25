@@ -1,3 +1,4 @@
 - Hi, I’m @Art3mis00 🌈✨
 - I’m from Italy 
 - I study Computer Engineering
+- sono pirla
